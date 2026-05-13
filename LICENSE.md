@@ -1,4 +1,4 @@
-# 
+# Get the ultimate new token sniper bot with smart Executor for new token sniper bot | dex-sniping & rug-pull-detection. Featuring dex-sniping and rug-pull-detection, it's the best
 
 
 
